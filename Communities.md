@@ -10,6 +10,7 @@
 - [Facebook developer group](https://www.facebook.com/groups/2035785263299933/)
 - [Facebook French user group](https://www.facebook.com/groups/2069785583250645/)
 - [Facebook Italian user group](https://www.facebook.com/groups/vcvitalia/)
+- [Facebook Spanish user group](https://www.facebook.com/groups/223977815086487/)
 - [Youtube](https://www.youtube.com/c/VCVRack)
 - [Instagram](https://www.instagram.com/vcvrack/)
 - [Discord](https://discord.gg/wxa89Mh)
